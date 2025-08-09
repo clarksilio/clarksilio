@@ -1,7 +1,7 @@
 **My name Emil Leifer. Welcome everyone!**
 
 # 💫 About Me:
-Full Stack Developer<br>CEO CRYBUS<br>Crypto Enthusiast<br>Follow my [Instagram](https://www.instagram.com/leiferemil) and [Twitter](https://x.com/clarksilio)<br>
+Full Stack Developer<br>CEO [CRYBUS](https://x.com/crybusx)<br>Crypto Enthusiast<br>Follow my [Instagram](https://www.instagram.com/leiferemil) and [Twitter](https://x.com/clarksilio)<br>
 
 
 ## 🌐 Socials:
