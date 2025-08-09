@@ -1,4 +1,4 @@
-**My name Emil Leifer. Welcome everyone!**
+**My name is Emil Leifer. Welcome everyone!**
 
 # 💫 About Me:
 💻Full Stack Developer<br>🚀CEO [CRYBUS](https://x.com/crybusx)<br>🪙Crypto Enthusiast<br>
